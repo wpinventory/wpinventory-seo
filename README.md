@@ -1,0 +1,1 @@
+# wpinventory-seo
